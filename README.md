@@ -1,3 +1,15 @@
+https://t66y.com/
+
+https://gvf2a.art/
+
+https://jable.tv/
+
+https://www.qwewqq.xyz/
+
+https://www.awx47a6zqnun.com/index/home.html
+
+https://theporndude.com/zh
+
 # web
 
 https://www.e8987.com/ https://www.4444kk.com/ dizhi@dizhimail.com
