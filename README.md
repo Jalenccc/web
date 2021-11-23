@@ -1,5 +1,7 @@
 https://t66y.com/
 
+http://www.xingzhiyin.com/
+
 https://gvf2a.art/
 
 https://jable.tv/
